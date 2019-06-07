@@ -1,0 +1,2 @@
+# thursday
+in class practice
